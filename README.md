@@ -1,0 +1,3 @@
+# perjuangan-hidup-mati
+terima kasih pakk. SAYA BENAR-BENAR KAPOK UNTUK COPY KODINGAN LAGI 
+SAYA HARUS LEBIH SEMANGAT. DUKUNG SAYA PAKKK!!!!!!!!!!
